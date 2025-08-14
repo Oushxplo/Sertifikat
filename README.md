@@ -6,3 +6,5 @@
 
 3. Sertifikat apresiasi Jadi Hacker
     ![sertifikat-jadihacker](https://github.com/user-attachments/assets/b1441e16-39b3-4047-b77b-bd9cf3cfd7b5)
+
+4. Sertifikat apresiasi Kota Bekasi ![Sertifikat kota Bekasi](https://github.com/user-attachments/assets/9d7c50d0-0e5a-4968-9c86-f7946175c8d9)
