@@ -10,7 +10,7 @@
 4. Sertifikat apresiasi Kota Bekasi ![Sertifikat kota Bekasi]
    (https://github.com/user-attachments/assets/9d7c50d0-0e5a-4968-9c86-f7946175c8d9)
 
-5Sertifikat apresiasi BMKG (Badan Meteorologi,
+5. Sertifikat apresiasi BMKG (Badan Meteorologi,
 Klimatologi, dan Geofisika)
 ![WhatsApp Image 2025-08-23 at 07 15 19_8a365b2c](https://github.com/user-attachments/assets/70114cbd-2079-4be8-8543-ec2bff39b006)
 
